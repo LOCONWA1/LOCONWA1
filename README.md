@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LOCONWA1
+- 👀 I’m interested in POWER B1,EXECL AND PYTHON.
+- 🌱 I’m currently learning POWER B1.
+- 💞️ I’m looking to collaborate on PYTHON AND EXECL.
+- 📫 How to reach me UGOCHUKWUNWOKOYE48@GMAIL.COM .
+- LOCONWA1/LOCONWA1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- You can click the Preview link to take a look at your changes
