@@ -17,6 +17,6 @@
 #### Grouth mindset
 
 
-> What is Growth Mind Set?
+ What is Growth Mind Set?
 
-A growth mindset is a belief that intelligence and abilities can be developed over time through hard work and dedication.
+> A growth mindset is a belief that intelligence and abilities can be developed over time through hard work and dedication.
