@@ -2,6 +2,6 @@
 
 **DOCUMENTS CONTENT**
 
--Introducton About Myself
+1.Introducton About Myself
 
--Grouth mindset
+2.Grouth mindset
