@@ -21,4 +21,4 @@
 
 > A growth mindset is a belief that intelligence and abilities can be developed over time through hard work and dedication.
 
-! [This is cancer][https://i.etsystatic.com/13923492/r/il/2296a4/2137467156/il_fullxfull.2137467156_j43y.jpg]
+![This is cancer][https://i.etsystatic.com/13923492/r/il/2296a4/2137467156/il_fullxfull.2137467156_j43y.jpg]
