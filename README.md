@@ -14,3 +14,4 @@
   
   I avidly love Reading and Trying new things every day and enjoy spending my time browsing.
 
+####  Grouth mindset
