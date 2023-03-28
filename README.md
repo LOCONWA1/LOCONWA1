@@ -12,7 +12,7 @@
   My name is Francis Ugochukwu Nwokoye. I am 28 years old and living in Liverpool. 
   
   
-  I avidly love Reading and Trying new things every day and enjoy spending my time browsing.
+  I avidly love Reading and Trying new things every day and enjoy spending my time browsing the internet and coding.
 
 #### Grouth mindset
 
